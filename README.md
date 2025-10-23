@@ -1,1 +1,1 @@
-Página creada por Nancy Rocio Huanca Quispe
+Página web hecha por Nancy Rocio Huanca Quispe
